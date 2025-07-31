@@ -2,4 +2,4 @@
 
 ## Placed in Top 5 (Priate)
 
-Stay tuned — source code will be available soon! 
+Source code will be publicly available after the awards ceremony on August 12. Stay tuned!
